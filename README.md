@@ -1,1 +1,1 @@
-# MyGit [TENT]
+# MyGit [Thitipat Narongsak]
